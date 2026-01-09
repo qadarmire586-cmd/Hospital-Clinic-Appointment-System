@@ -1,2 +1,5 @@
 # Hospital-Clinic-Appointment-System
-maxamed mire muxumud C1220403
+Maxamed Mire Muxumud C1220403
+Ilyas abdi 
+C/fitax Ormar Adan
+Zamse 
